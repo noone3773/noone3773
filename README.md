@@ -1,10 +1,13 @@
-- INSTAGRAM:5DCRR
-- SNAPCHAT:P.ZT
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- PUBLIC INSTAGRAM : 5DCRR
+- PRIVATE INSTAGRAM : TEJ0
+- FAMILY INSTAGRAM : 27_W9
+- PUBLIC SNAPCHAT:P3.5
+- PRIVATE SNAPCHAT : P.ZT
+- 
+- 
+- 
+- 
+- 
 - 🔎 bo 3of: ...
 - 
   
